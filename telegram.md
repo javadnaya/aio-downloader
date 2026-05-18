@@ -7,6 +7,155 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 14:02
+---
+
+## FoxNewsTwitter — post 341867
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341867_1779100376.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump sends Iran a new warning: “The clock is ticking.”
+
+This comes as reports say Tehran has submitted a revised proposal to Pakistani mediators amid ongoing nuclear negotiations and rising tensions in the Middle East.
+
+As the U.S. blockade continues, Iran’s economy takes a major hit with pressure mounting on the regime to make a deal.
+
+@TreyYingst reports the latest developments from the region.
+</div>
+
+## IranIntlTV — post 337758
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337758_1779100378.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهور آمریکا، گفت: «مقام‌های جمهوری اسلامی برای امضای توافق بی‌تاب هستند، اما پس از رسیدن به توافق، متنی ارسال می‌کنند که هیچ ربطی به توافق انجام‌شده ندارد.»
+
+گفت‌وگو با علی‌حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337757
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337757_1779100379.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انور قرقاش، مشاور دیپلماتیک رییس امارات متحده عربی، نیروهای نیابتی مورد حمایت جمهوری اسلامی را مسئول حملات پهپادی دوشنبه به خاک این کشور دانست و آن را «اقدامی تروریستی» خواند.
+
+گفت‌وگو با تروسکه صادقی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14406
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14406_1779100381.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🕊
+👨‍🦲 سفر پوتین به چین تنها ۴ روز پس از حضور ترامپ
+
+🔹رئیس‌جمهور چین کمتر از یک هفته پس از سفر رئیس‌جمهور آمریکا به پکن، اکنون برای میزبانی همتای روس خود آماده می‌شود.
+
+🔹دیدارهای روسای جمهور آمریکا و روسیه نشان می‌دهد که پکن «به سرعت در حال ظهور به عنوان نقطه کانونی دیپلماسی جهانی» است.
+
+🔹تجارت دوجانبه چین و روسیه از سال ۲۰۲۲ بعد از جنگ اوکراین به بالاترین سطح خود رسیده است، به طوری که چین بیش از یک‌چهارم صادرات روسیه را خریداری می‌کند.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاراگراف اول؛ آیا کارزارهای تحریمی، تیم ملی فوتبال را به سمت حکومت هل داد؟
+
+🔸«اجازه دادن به تیم رژیم ایران برای شرکت در جام جهانی یک فاجعه اخلاقی است»؛ این را یک ایرانی طرفدارِ دوآتشه فوتبال در یادداشتی برای هفته‌نامه بریتانیایی «اسپکتیتور» نوشته است.
+
+🔸نام او آتبین معیدی است و در متن خود تأکید می‌کند که از طرفداران دو آتشه سردار آزمون و مهدی طارمی است؛ زوجی در خط حمله تیم ملی ایران که این هوادار فوتبال برای توصیف عملکردشان از تعبیر تله‌پاتیک (دورآگاهانه) استفاده می‌کند.
+
+🔸با این حال، او اصرار دارد که مخالفتش با حضور تیم ملی فوتبال ایران در جام جهانی صرفاً سلیقه شخصی‌اش نیست و آن را «خواستی عمومی» معرفی می‌کند؛ به‌گونه‌ای که می‌نویسد، مسئله برای «ایرانیان» نه یک بحث سیاسی، بلکه مسئله‌ای درباره حقوق بشر و عدالت است.
+
+🔸در ذهنیت او، سردار آزمون یک ترکمن ایرانیِ خونسرد، بی‌تکلف و دوست‌داشتنی است که در سال‌های اخیر علیه رژیم صحبت کرده است؛ و در مقابل، مهدی طارمی چهره‌ای آرام و کم‌حرف که در نگاه او حامی رژیم و ایدئولوژی آن بوده است. هرچند این هوادار فوتبال در ادامه می‌نویسد نشانه‌هایی وجود دارد که ستاره پیشین اینترمیلان موضع خود را تغییر داده است.
+
+🔸این هوادار فوتبال، تابستان امسال به دیدار خانواده‌اش در لس‌آنجلس می‌رود؛ شهری که میزبان دو بازی ایران در جام جهانی است.
+
+🔸نسخه کامل این گزارش را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20327
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20327_1779100381.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت اسرائیل به فارسی:
+
+هرچه بیشتر به سقوط نزدیک می‌شوند، اسلحه‌ها بزرگ‌تر می‌شوند.
+
+@IranianMinds
+</div>
+
+## alonews — post 120822
+
+<div align="center">
+  <a href="telegram/content/alonews_120822_1779100383.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار الجزیره به نقل از منبعی در وزارت کشور پاکستان: وزیر کشور پاکستان، سفر خود به تهران را یک روز دیگر تمدید کرد
+
+
+🔴 تلاش‌های پاکستان در حال حاضر بر تضمین تداوم عدم تنش متمرکز است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120821
+
+<div align="center">
+  <a href="telegram/content/alonews_120821_1779100383.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدراعظم آلمان: تهران باید با واشنگتن وارد مذاکره شود، از تهدید همسایگان خود دست بردارد و تنگه هرمز را بدون محدودیت باز کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120820
+
+<div align="center">
+  <a href="telegram/content/alonews_120820_1779100383.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 تسنیم: ایران متن جدیدی را در ۱۴ بند به واسطه پاکستانی تحویل داد
+
+
+🔴یک منبع نزدیک به تیم مذاکره کننده:
+ایران جدیدترین متن خود را در ۱۴ بند به واسطه پاکستانی تحویل داده است و میانجی پاکستانی آن را به آمریکایی‌ها ارائه می‌کند.
+
+
+🔴 آمریکایی‌ها اخیراْ در پاسخ به متن پیشین ایران که آن هم در ۱۴ بند ارائه شده بود، متنی ارسال کرده بودند. ایران نیز مجددا بر اساس روال چند وقت اخیر در تبادل پیام، متن خود را پس از انجام اصلاحاتی مجددا در ۱۴ بند به واسطه پاکستانی ارائه کرد.
+
+
+🔴 به گفته این منبع مطلع، متن جدید ایران بر موضوع مذاکرات پایان جنگ و اقدامات اعتمادساز طرف آمریکایی متمرکز است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 13:53
 ---
 
