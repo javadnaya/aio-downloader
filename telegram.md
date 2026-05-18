@@ -7,6 +7,19 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 07:02
+---
+
+## Persian_Trend_Official — post 14372
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14372_1779075170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علیرضا دبیر 💢نوید افکاری رو ما میخاستیم بیاریم بیرون نجات بدیم اما ضد انقلاب نذاشت ! ! ! 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 06:52
 ---
 
